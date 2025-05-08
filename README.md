@@ -7,8 +7,6 @@
 
 - 💬 Ask me about **Tableau**
 
-- 📫 How to reach me **tyanatole@gmail.com**
-
 - ⚡ Fun fact **I taught myself how to play the piano.**
 
 <h3 align="left">Connect with me:</h3>
